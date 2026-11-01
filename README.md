@@ -1,1 +1,1 @@
-Senior technology professional with 20+ years of experience across business analysis, release/change management, project delivery, Agile/SAFe, quality engineering, and enterprise healthcare transformation. 
+Senior technology professional with 20+ years of experience across business analysis, release/change management, project delivery, Agile/SAFe, quality engineering, and enterprise healthcare transformation. Currently pursuing my Master’s degree while actively expanding my technical toolkit by exploring new programming languages and emerging frameworks
